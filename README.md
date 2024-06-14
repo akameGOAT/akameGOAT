@@ -6,5 +6,6 @@ meu nome é gabriel e eu estudo na escola olga cury. Esse são alguns do meus pr
 e o cristiano ronaldo é o goat fim.
 #FixTf2
 
-![](https://media1.tenor.com/m/8_4zCHXUURYAAAAd/anime-frieren.gif)
+![](https://media1.tenor.com/m/qO4_SbfQMkgAAAAC/drinking-tea.gif)
+
 
